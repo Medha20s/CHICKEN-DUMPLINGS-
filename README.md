@@ -1,3 +1,0 @@
-This recipe is for chicken dumplings! Enjoy the dumplings by using the recipe.md file...
-
-These chicken dumplings are thai style soup dumplings with high amount of chilli. Be aware!
